@@ -27,7 +27,7 @@
 
 ### 📫 How to reach me:
 - 📧 eliaselmok@gmail.com
-- 🌍 [(LinkedIn) (https://www.linkedin.com/in/elias-el-mokadem-46598620a/)]
+- 🌍 LinkedIn: https://www.linkedin.com/in/elias-el-mokadem-46598620a/
 - 📱 +32 486 06 96 14
 
 ---
